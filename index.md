@@ -17,7 +17,7 @@
 <p> </p>
 
 
-#### [短篇，铁椒，盾佩，绿寡，锤基，《摩根·斯塔克的成长日记》--，奇异救活铁人，全员存活](https://archiveofourown.org/works/18944731/chapters/44978209)
+#### [短篇，铁椒，盾佩，绿寡，锤基，《摩根·斯塔克的成长日记》--奇异救活铁人，全员存活](https://archiveofourown.org/works/18944731/chapters/44978209)
 <p> </p>
 <p> </p>
 
